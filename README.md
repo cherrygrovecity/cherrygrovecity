@@ -11,9 +11,9 @@
 
 𝗍𝗁𝖾𝗒ㅤㅤㅤㅤ.ㅤㅤㅤㅤ𝗁𝖾
 
-ㅤ[𝗌𝗍𝗋𝖺𝗐](https://theprinceofdoom.straw.page/)ㅤ
+ㅤ[𝗌𝗍𝗋𝖺𝗐](https://xatuu.straw.page/)
 
-[𝗉𝗋𝗇𝗌](https://en.pronouns.page/@wakeupyourpsyche)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[𝖺𝗍𝖺](https://wakeupyourpsyche.atabook.org/)
+[𝗉𝗋𝗇𝗌](https://en.pronouns.page/@cherrygrovecity)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[𝖺𝗍𝖺](https://xatu.atabook.org/)
 
 [𝗍𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/becquerelium)
 
