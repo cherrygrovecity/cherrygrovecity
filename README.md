@@ -9,13 +9,13 @@
 
 <div align="center">
 
-𝗍𝗁𝖾𝗒ㅤㅤㅤㅤ.ㅤㅤㅤㅤ𝗁𝖾
+theyㅤㅤㅤㅤ.ㅤㅤㅤㅤhe
 
-ㅤ[𝗌𝗍𝗋𝖺𝗐](https://xatuu.straw.page/)
+ㅤ[straw](https://xatuu.straw.page/)
 
-[𝗉𝗋𝗇𝗌](https://en.pronouns.page/@cherrygrovecity)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[𝖺𝗍𝖺](https://xatu.atabook.org/)
+[prns](https://en.pronouns.page/@cherrygrovecity)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[ata](https://xatu.atabook.org/)
 
-[𝗍𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/becquerelium)
+[tumblr](https://www.tumblr.com/becquerelium)
 
 <div align="center">
 
