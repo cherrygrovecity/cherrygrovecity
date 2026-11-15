@@ -1,9 +1,9 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=pwnfected&color=b890a8&style=plastic&label=unfortunate&abbreviated=true)  
+![](https://komarev.com/ghpvc/?username=cherrygrovecity&color=4baff4&style=plastic&label=bird)
 
 
-<img alt="the lass" src="https://github.com/user-attachments/assets/0da216d2-b365-4c2e-8794-b1579bc8c605" />
+<img alt="the falknerifico" src="https://github.com/user-attachments/assets/dc8ca6b8-10e3-4ca4-bf0a-45fb6683d6d2" />
 
 
 
@@ -17,8 +17,9 @@
 
 [𝗍𝗎𝗆𝖻𝗅𝗋](https://www.tumblr.com/becquerelium)
 
+<div align="center">
 
-<img width="200" height="25" alt="my-blinkie (1)" src="https://github.com/user-attachments/assets/1e32442c-cd5b-4c3c-9511-480a91d7e2b2" />
+<img alt="my-blinkie" src="https://github.com/user-attachments/assets/3bf3f931-817d-43b0-aa40-f41db76939b2" />
 
 <div align="center">
 
