@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=cherrygrovecity&color=4baff4&style=plastic&label=bird)
 
 
-<img alt="the falknerifico" src="https://github.com/user-attachments/assets/dc8ca6b8-10e3-4ca4-bf0a-45fb6683d6d2" />
+<img alt="credz to @cherrygrovecity in most socials" src="https://github.com/user-attachments/assets/336ce160-f6c6-451b-9cef-1d959ff7d5d5" />
 
 
 
