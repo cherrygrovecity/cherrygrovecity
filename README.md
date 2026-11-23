@@ -9,8 +9,7 @@
 
 <div align="center">
 
-$\small{\text{\it\color{#87CEFA}{they}}}$
-ㅤㅤㅤㅤ.ㅤㅤㅤㅤ$\small{\text{\it\color{#87CEFA}{he}}}$
+$\small{\text{\it\color{#87CEFA}{they}}}$ㅤㅤㅤㅤ.ㅤㅤㅤㅤ$\small{\text{\it\color{#87CEFA}{he}}}$
 
 
 ㅤ[straw](https://xatuu.straw.page/)
